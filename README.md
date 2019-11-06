@@ -1,2 +1,2 @@
 # 4fc
-4 Schritte zum Prpfen vom Fakten im Netz
+4 Schritte zum Prüfen vom Fakten im Netz
